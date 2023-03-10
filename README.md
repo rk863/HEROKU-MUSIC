@@ -1,6 +1,6 @@
 
 
-<p align="center"><a href="https://t.me/TG_FRIENDSS"><img src="https://telegra.ph/file/b2b4fee33e6c7d2a5651a.jpg" width="300"></a></p>
+<p align="center"><a href="https://t.me/love_you_zindagi786"><img src="https://telegra.ph/file/b2b4fee33e6c7d2a5651a.jpg" width="300"></a></p>
  
 
 
@@ -16,7 +16,7 @@
            THEN PLAY** 🐒
 
 ## ⚡HAVE ANY DOUBT..??⚡
-ANY DOUBT DM TO 👉 [❤️VIP BOY❤️](https://t.me/the_vip_boy)
+ANY DOUBT DM TO 👉 [❤️love u zindagi ❤️](https://t.me/love_you_zindagi786)
 
 ## 🛠 Available Commands:
 
@@ -70,5 +70,5 @@ The easiest way to host this bot
 ### Support & Updates 🌹
 <a href="https://t.me/TG_FRIENDSS"><img src="https://img.shields.io/badge/Join-Group%20Support-blue.svg?style=for-the-badge&logo=Telegram">
 
-</a> <a href="https://t.me/VIP_CREATORS"><img src="https://img.shields.io/badge/Join-Updates%20Channel-blue.svg?style=for-the-badge&logo=Telegram"></a>
+</a> <a href="https://t.me/love_you_zindagi786"><img src="https://img.shields.io/badge/Join-Updates%20Channel-blue.svg?style=for-the-badge&logo=Telegram"></a>
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
